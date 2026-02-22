@@ -1,0 +1,1 @@
+Hello, I am misqu0ted. I have leaked Creditz's (Neura / SHITZK / CZK owner) source of neura. I have done this because he has disrespected many people and even has a grabber on his desktop in one of his youtube videos LOL! He has disrespected Quorum and skidded there Xeno api, which I did not like because Quorum is the only place you should trust.
